@@ -8,7 +8,7 @@
  
  Исходный документ
 ------------
-<img src="https://sun9-17.userapi.com/c850232/v850232453/1c39a1/4IBIW">
+<img src="https://sun9-17.userapi.com/c850232/v850232453/1c39a1/4IBIWtrm2D4.jpg">
 
  Результат
 ------------
